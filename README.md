@@ -1,1 +1,1 @@
-# DOC1.0
+Tribune page
